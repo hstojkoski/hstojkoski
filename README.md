@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @hstojkoski
+- 👀 I’m interested in movies and critique
